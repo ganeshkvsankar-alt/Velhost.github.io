@@ -1,2 +1,2 @@
 # Velhost.github.io
-fre 24/7 forever
+free 24/7 forever
